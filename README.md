@@ -1,0 +1,1 @@
+# Qlik-QV12BA-Exam-Questions-Are-An-Effective-Way-To-Prepare
